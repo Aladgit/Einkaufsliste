@@ -1,10 +1,14 @@
-# HI
+# HIlfe
 ## Lebenslauf ueber moi 
-- **Name** tymma
-- **Nachname** Le
+- **Name** thymian
+- **Nachname** Lebt
 
-`hier Platz fuer einen Quelltext`
+`hier Platz fuer keinen Quelltext`
 
-> Gibt's nichts mehr zu sagen
+> Gibt's nichts mehr zu sagen ich schwoer 
 
-*Das war's'*
+*Das war's' jetzt aber* ***komplett***
+
+> ich finde kpop schlecht
+
+![KPOP BAD](https://i.redd.it/up44225wnzx01.jpg "KPOP BAD")
